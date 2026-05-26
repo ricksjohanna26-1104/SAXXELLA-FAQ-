@@ -14,16 +14,20 @@ Kooperative Schloss Gersdorf, Gersdorf 23, 09661 Striegistal.
 ***Location & Lageplan***<br>
 Genau wie bei anderen Festivals wird es bei uns eine große Zeltwiese geben, auf der ihr euer Zelt aufstellen könnt. Bitte achtet darauf, auf dem Zeltplatz keinen Lärm zu machen, da dieser direkt auf das angrenzende Wohngebiet schallt und wir alle keinen Bock auf erzürnte Dorfbewohner:innen mit Mistgabeln haben. Wenn ihr ein Auto oder einen Camper besitzt, in dem ihr schlafen möchtet, könnt ihr euch auch damit auf die Campingwiese stellen. 
     hier
-  </a>. Dort seht ihr auch, wo sich Toiletten und Duschen befinden.
+  </a>. Dort seht ihr auch, wo sich Toiletten und Duschen befinden.<br>
+
+  ***Wetter***<br>
+SaXXella 2026 wird HOT! Denkt beim packen unbedingt an ausreichend Sonnenschutz, Kopfbedeckung und Trinkflasche zum auffüllen! Auf dem Gelände stehen Trinkwasserkanister um euch jederzeit mit Flüssigkeit zu versorgen. Seid lieb zu einander und füllt bitte leere Kanister auf wenn ihr sie entdeckt. Auffüllen könnt ihr bei den Duschen und in der Küche.
 
 ***Beginn***<br>
 Der Einlass ist am Freitag (29.05.2026) ab 14 Uhr für euch geöffnet! Ab 15 Uhr gehts direkt los mit den ersten Schichten, so dass alle ab 18 Uhr ein warmes Abendessen bekommen. So können alle gut gesättigt zum ersten Act antreten.
+Samstag wird es von 14-16 Uhr erneut einen Einlass geben.
 
 ***Ende***<br>
 Nach dem letzten Act am Sonntag (31.05.2026) wird sich der ganze Spaß wohl oder übel langsam auflösen müssen. Bis 14 Uhr werdet ihr noch die Möglichkeit zum Brunchen haben, es besteht also keine Eile bei der Abreise. Wer im Abbauteam ist, wird natürlich gebeten zu bleiben.
 
 ***An- & Abreise***<br>
-Auto<br>
+***Auto***<br>
 Eine Anreise mit dem Auto ist problemlos möglich und es gibt genügend Parkplätze vor Ort! Schaut für die Anreise auch gerne noch mal in unserer <a href="https://t.me/+m8F1F5fRCpthNTJi">  Mitfahrzentrale </a>, vielleicht findet ihr ja noch ein paar Mitfahrer:innen! 
 
 ***Öffis***<br>
@@ -66,7 +70,7 @@ Am Samstag und Sonntag von 13.00 - 16.00 Uhr steht der Wellnessbereich ausschlie
 ***Schichten vor Ort***<br>
 Alle Aufgaben sind an euch verteilt, das freut uns natürlich sehr! Alle, die keine Schicht mehr abbekommen haben, bitten wir ein Auge auf die anderen zu haben und ggf. bei Schichten zu unterstützen.<br>
 
-Die Barschichten treffen sich immer an der Bar und bekommen von der vorangegangenen Schicht eine kurze Einweisung.<br>
+Die Barschichten treffen sich immer an der Bar und bekommen von der vorangegangenen Schicht eine kurze Einweisung. Das saXXella für uns alle nur ein Hobby und kein Business und wir haben super faire Preise, deswegen bitten wir euch fair zu bleiben und eure friends nicht mit Freidrinks zu versorgen!<br>
 Die Küchenschichten treffen sich immer an der Küche (direkt neben der Bar) und werden dort in Empfang genommen und eingewiesen.<br>
 Das Hygieneteam trifft sich immer an der Küche und bekommt dort eine kurze Einweisung. Für Handschuhe und Desi ist gesorgt!<br>
 Für die Licht-Schichten müsst ihr am Freitag um 18 Uhr an einer kleinen Einweisung teilnehmen. Treff ist auch hier die Küche!<br>
