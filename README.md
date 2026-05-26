@@ -52,7 +52,7 @@ Freitag: 18:00-19:00 Uhr; 22:00-23:00 Uhr  Samstag: 14:00- 16:00 Uhr; 22:00 - 
 Bitte bringt hierfür Geld in szenetypischer Stückelung mit (kleine Scheine, 2€, 1€ und 50 Cent Münzen). Keine Kartenzahlung möglich! Die Wertmarken können am Ende des Festivals nicht zurückgetauscht werden. Ihr könnt euch aber gerne noch mit Getränken für den Rückweg eindecken!<br>
 
 ***Musik***<br>
-Auch in diesem Jahr haben wir eine handverlesene Auswahl an Artists für euch zusammengestellt. Den genauen Timetable findet ihr hier im Channel!<br>
+Auch in diesem Jahr haben wir eine handverlesene Auswahl an Artists für euch zusammengestellt. Den genauen Timetable findet ihr <a href="https://ricksjohanna26-1104.github.io/Timetable/Lineup%20.pdf"> hier <br> 
 
 ***Sanitäre Anlagen***<br>
 Auf dem Gelände sind Dixietoiletten, die professionell gereinigt werden. Die Benutzung ist easy wenn ihr ein paar Kleinigkeiten beachtet. Benutztes Toilettenpapier, Hygieneartikel, Müll und Ähnliches werft ihr in den Mülleimer. Zack Alles getrennt und nichts verstopft!
