@@ -23,7 +23,7 @@ Nach dem letzten Act am Sonntag (31.05.2026) wird sich der ganze Spaß wohl oder
 
 ***An- & Abreise***<br>
 Auto<br>
-Eine Anreise mit dem Auto ist problemlos möglich und es gibt genügend Parkplätze vor Ort! Schaut für die Anreise auch gerne noch mal in unserer <a href="https://t.me/+m8F1F5fRCpthNTJi">  Mitfahrzentrale, vielleicht findet ihr ja noch ein paar Mitfahrer:innen! 
+Eine Anreise mit dem Auto ist problemlos möglich und es gibt genügend Parkplätze vor Ort! Schaut für die Anreise auch gerne noch mal in unserer <a href="https://t.me/+m8F1F5fRCpthNTJi">  Mitfahrzentrale </a>, vielleicht findet ihr ja noch ein paar Mitfahrer:innen! 
 
 Öffis<br>
 Wenn ihr mit dem Zug aus Richtung Dresden oder Leipzig kommt, müsst ihr über Döbeln Hauptbahnhof und dann mit dem Bus bis zur Haltestelle Roßwein Wolfstal fahren. Achtung - die Busse fahren nicht so regelmäßig! Für Anreisende aus anderen Städten empfiehlt sich die Fahrt über Dresden oder Leipzig. Bedenkt, dass ihr von der Bushaltestelle noch ein Stück (ca. 1,3 Kilometer) zu Fuß laufen müsst.<br>
@@ -49,10 +49,10 @@ Unsere Getränkepreis bleiben weiterhin günstig. Für den schmalen Taler könnt
 ***Geld & Wertmarken***<br>
 An der Bar wollen wir auf Bargeld verzichten, weswegen ihr zu bestimmten Zeiten Marken kaufen könnt. Eine Marke kostet 2€ und diese können direkt am Einlass (Freitag 14-18 Uhr) oder zu folgenden Zeiten neben der Bar erworben werden:
 Freitag: 18:00-19:00 Uhr; 22:00-23:00 Uhr  Samstag: 14:00- 16:00 Uhr; 22:00 - 23:00 Uhr 
-Bitte bringt hierfür Geld in szenetypischer Stückelung mit (kleine Scheine, 2€, 1€ und 50 Cent Münzen). Keine Kartenzahlung möglich! Die Wertmarken können am Ende des Festivals nicht zurückgetauscht werden. Ihr könnt euch aber gerne noch mit Getränken für den Rückweg eindecken!<br>
+Bitte bringt hierfür Geld in szenetypischer Stückelung mit (kleine Scheine, 2€, 1€ und 50 Cent Münzen). Keine Kartenzahlung möglich! Die Wertmarken können am Ende des Festivals nicht zurückgetauscht werden. Ihr könnt euch aber gerne noch mit Getränken für den Rückweg eindecken nachdem ihr in unserer <a href="https://drive.google.com/file/d/1PL6SizhGzMgb4G4zbN7arfiIjq4j3N1r/view?usp=drivesdk">Getränkeliste </a> fündig geworden seid !<br>
 
 ***Musik***<br>
-Auch in diesem Jahr haben wir eine handverlesene Auswahl an Artists für euch zusammengestellt. Den genauen Timetable findet ihr <a href="https://ricksjohanna26-1104.github.io/Timetable/Lineup%20.pdf"> hier <br> 
+Auch in diesem Jahr haben wir eine handverlesene Auswahl an Artists für euch zusammengestellt. Den genauen Timetable findet ihr <a href="https://drive.google.com/file/d/1p5sAX-IKDWPXcoHkYtawIWfjqPXrb8Bk/view?usp=drivesdk"> hier <br> 
 
 ***Sanitäre Anlagen***<br>
 Auf dem Gelände sind Dixietoiletten, die professionell gereinigt werden. Die Benutzung ist easy wenn ihr ein paar Kleinigkeiten beachtet. Benutztes Toilettenpapier, Hygieneartikel, Müll und Ähnliches werft ihr in den Mülleimer. Zack Alles getrennt und nichts verstopft!
@@ -73,10 +73,10 @@ Für Aufbau, Abbau und Umbau ist Treffpunkt ebenfalls im Küchen- und Barbereich
 Denkt daran, vor Ort zum richtigen Zeitpunkt am richtigen Ort aufzuschlagen und mit anzupacken. Ohne eure Hilfe geht es nicht!<br>
 <br>
 ***Workshops***<br>
-Trübsinn, Langeweile und Tristesse sind die typischen Erscheinungsformen eines langen Samstags. Der Kater kickt und die Laune geht den Bach runter. Lucky you, dass wir auf dem saXXella ein noch besseres Gegenmittel als Elotrans haben. Ledermantel an, Sonnenbrille auf - wir bringen dich mit Sicherheit wieder in Fahrt. Eine Übersicht der Workshops findet ihr im channel.<br>
+Trübsinn, Langeweile und Tristesse sind die typischen Erscheinungsformen eines langen Samstags. Der Kater kickt und die Laune geht den Bach runter. Lucky you, dass wir auf dem saXXella ein noch besseres Gegenmittel als Elotrans haben. Ledermantel an, Sonnenbrille auf - wir bringen dich mit Sicherheit wieder in Fahrt. Eine Übersicht der Workshops findet ihr <a href="https://drive.google.com/file/d/1p5sAX-IKDWPXcoHkYtawIWfjqPXrb8Bk/view?usp=drivesdk"> hier .<br>
 
 ***Awareness***<br>
-Wir wollen einen Raum schaffen, in dem sich alle wohlfühlen und frei entfalten können. Alle die Teil der Veranstaltung sind, gestalten diesen Raum aktiv mit. Für das Festival finden wir einige Verhaltensregeln wichtig. Wir bitten euch diese hier vorab in unserem Awareness Konzept nachzulesen.<br>
+Wir wollen einen Raum schaffen, in dem sich alle wohlfühlen und frei entfalten können. Alle die Teil der Veranstaltung sind, gestalten diesen Raum aktiv mit. Für das Festival finden wir einige Verhaltensregeln wichtig. Wir bitten euch diese hier vorab im  <a href="https://drive.google.com/file/d/19tui43A-Ai8iXcprIEWS4dFevmQzJBiz/view?usp=drivesdk"> Awarenesskonzept </a> nachzulesen. <br>
 <br>
 ***Merch: Handtücher, T-Shirts***<br>
 Die bestellten T-Shirts und Handtücher sowie eure Goodiebags könnt ihr euch beim Einlass abholen.<br>
