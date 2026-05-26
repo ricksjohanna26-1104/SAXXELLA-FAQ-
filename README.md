@@ -9,9 +9,10 @@ Fragen / Antworten rund ums Festival!
 
 ***Adresse*** <br>
 Kooperative Schloss Gersdorf, Gersdorf 23, 09661 Striegistal.
+(<a href="https://maps.app.goo.gl/bm3yDUJC12z2hvwt5">Google Maps</a>)
 
 ***Location & Lageplan***<br>
-Genau wie bei anderen Festivals wird es bei uns eine große Zeltwiese geben, auf der ihr euer Zelt aufstellen könnt. Bitte achtet darauf, auf dem Zeltplatz keinen Lärm zu machen, da dieser direkt auf das angrenzende Wohngebiet schallt und wir alle keinen Bock auf erzürnte Dorfbewohner:innen mit Mistgabeln haben. Wenn ihr ein Auto oder einen Camper besitzt, in dem ihr schlafen möchtet, könnt ihr euch auch damit auf die Campingwiese stellen. Einen detaillierten Lageplan findet ihr im <a href="t.me/+f0hj9Dt0JOw0Nmly">
+Genau wie bei anderen Festivals wird es bei uns eine große Zeltwiese geben, auf der ihr euer Zelt aufstellen könnt. Bitte achtet darauf, auf dem Zeltplatz keinen Lärm zu machen, da dieser direkt auf das angrenzende Wohngebiet schallt und wir alle keinen Bock auf erzürnte Dorfbewohner:innen mit Mistgabeln haben. Wenn ihr ein Auto oder einen Camper besitzt, in dem ihr schlafen möchtet, könnt ihr euch auch damit auf die Campingwiese stellen. 
     hier
   </a>. Dort seht ihr auch, wo sich Toiletten und Duschen befinden.
 
@@ -25,9 +26,9 @@ Nach dem letzten Act am Sonntag (31.05.2026) wird sich der ganze Spaß wohl oder
 Auto<br>
 Eine Anreise mit dem Auto ist problemlos möglich und es gibt genügend Parkplätze vor Ort! Schaut für die Anreise auch gerne noch mal in unserer <a href="https://t.me/+m8F1F5fRCpthNTJi">  Mitfahrzentrale </a>, vielleicht findet ihr ja noch ein paar Mitfahrer:innen! 
 
-Öffis<br>
+***Öffis***<br>
 Wenn ihr mit dem Zug aus Richtung Dresden oder Leipzig kommt, müsst ihr über Döbeln Hauptbahnhof und dann mit dem Bus bis zur Haltestelle Roßwein Wolfstal fahren. Achtung - die Busse fahren nicht so regelmäßig! Für Anreisende aus anderen Städten empfiehlt sich die Fahrt über Dresden oder Leipzig. Bedenkt, dass ihr von der Bushaltestelle noch ein Stück (ca. 1,3 Kilometer) zu Fuß laufen müsst.<br>
-säXXY Bus<br>
+***säXXY Bus***<br>
 Hinfahrt (29.05.): 15:00 Uhr ab Dresden Neustadt<br>
 Rückfahrt (31.05.): 13:00 Uhr ab Gersdorf<br>
 
