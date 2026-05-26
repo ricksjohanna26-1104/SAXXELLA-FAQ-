@@ -1,11 +1,19 @@
 # SAXXELLA-FAQ-
 Fragen / Antworten rund ums Festival!
+<p>
+  Alle Infos findet ihr auch in unserem
+  <a href="t.me/+f0hj9Dt0JOw0Nmly">
+    Telegram Channel
+  </a>
+</p>
 
 ***Adresse*** <br>
 Kooperative Schloss Gersdorf, Gersdorf 23, 09661 Striegistal.
 
 ***Location & Lageplan***<br>
-Genau wie bei anderen Festivals wird es bei uns eine große Zeltwiese geben, auf der ihr euer Zelt aufstellen könnt. Bitte achtet darauf, auf dem Zeltplatz keinen Lärm zu machen, da dieser direkt auf das angrenzende Wohngebiet schallt und wir alle keinen Bock auf erzürnte Dorfbewohner:innen mit Mistgabeln haben. Wenn ihr ein Auto oder einen Camper besitzt, in dem ihr schlafen möchtet, könnt ihr euch auch damit auf die Campingwiese stellen. Einen detaillierten Lageplan findet ihr im Channel. Dort seht ihr auch, wo sich Toiletten und Duschen befinden.
+Genau wie bei anderen Festivals wird es bei uns eine große Zeltwiese geben, auf der ihr euer Zelt aufstellen könnt. Bitte achtet darauf, auf dem Zeltplatz keinen Lärm zu machen, da dieser direkt auf das angrenzende Wohngebiet schallt und wir alle keinen Bock auf erzürnte Dorfbewohner:innen mit Mistgabeln haben. Wenn ihr ein Auto oder einen Camper besitzt, in dem ihr schlafen möchtet, könnt ihr euch auch damit auf die Campingwiese stellen. Einen detaillierten Lageplan findet ihr im <a href="t.me/+f0hj9Dt0JOw0Nmly">
+    hier
+  </a>. Dort seht ihr auch, wo sich Toiletten und Duschen befinden.
 
 ***Beginn***<br>
 Der Einlass ist am Freitag (29.05.2026) ab 14 Uhr für euch geöffnet! Ab 15 Uhr gehts direkt los mit den ersten Schichten, so dass alle ab 18 Uhr ein warmes Abendessen bekommen. So können alle gut gesättigt zum ersten Act antreten.
@@ -15,7 +23,8 @@ Nach dem letzten Act am Sonntag (31.05.2026) wird sich der ganze Spaß wohl oder
 
 ***An- & Abreise***<br>
 Auto<br>
-Eine Anreise mit dem Auto ist problemlos möglich und es gibt genügend Parkplätze vor Ort! Schaut für die Anreise auch gerne noch mal in unsere Mitfahrzentrale, vielleicht findet ihr ja noch ein paar Mitfahrer:innen! Alternativ könnt ihr euch einen Platz in unserem Bus buchen. Das geht ganz einfach über das Anmeldeformular.
+Eine Anreise mit dem Auto ist problemlos möglich und es gibt genügend Parkplätze vor Ort! Schaut für die Anreise auch gerne noch mal in unserer <a href="https://t.me/+m8F1F5fRCpthNTJi">  Mitfahrzentrale, vielleicht findet ihr ja noch ein paar Mitfahrer:innen! 
+
 Öffis<br>
 Wenn ihr mit dem Zug aus Richtung Dresden oder Leipzig kommt, müsst ihr über Döbeln Hauptbahnhof und dann mit dem Bus bis zur Haltestelle Roßwein Wolfstal fahren. Achtung - die Busse fahren nicht so regelmäßig! Für Anreisende aus anderen Städten empfiehlt sich die Fahrt über Dresden oder Leipzig. Bedenkt, dass ihr von der Bushaltestelle noch ein Stück (ca. 1,3 Kilometer) zu Fuß laufen müsst.<br>
 säXXY Bus<br>
@@ -38,12 +47,12 @@ Zusätzlich stehen für euch den ganzen Tag über Snacks an der Ausgabe bereit. 
 Unsere Getränkepreis bleiben weiterhin günstig. Für den schmalen Taler könnt ihr an der Bar Sekt, Shots, diverse alkoholfreie Getränke und unser süffiges selbstgebrautes Festivalbier das SAXHELLE erstehen. Wir haben auf dem Festivalgelände und auf der Zeltwiese Wasserkanister verteilt, damit ihr euch über das Angebot an der Bar hinaus jederzeit mit Flüssigkeit versorgen könnt. Das Auffüllen der Kanister legen wir vertrauensvoll in die Hände aller Festivalteilnehmenden. Lauft nicht an einem leeren Kanister vorbei, sondern füllt ihn in der Küche auf und bringt ihn zu seinem Standort zurück.<br>
 <br>
 ***Geld & Wertmarken***<br>
-An der Bar und wollen wir auf Bargeld verzichten, weswegen ihr zu bestimmten Zeiten Marken kaufen könnt. Eine Marke kostet 2€ und diese können direkt am Einlass (Freitag 14-18 Uhr) oder zu folgenden Zeiten neben der Bar erworben werden:
+An der Bar wollen wir auf Bargeld verzichten, weswegen ihr zu bestimmten Zeiten Marken kaufen könnt. Eine Marke kostet 2€ und diese können direkt am Einlass (Freitag 14-18 Uhr) oder zu folgenden Zeiten neben der Bar erworben werden:
 Freitag: 18:00-19:00 Uhr; 22:00-23:00 Uhr  Samstag: 14:00- 16:00 Uhr; 22:00 - 23:00 Uhr 
-Bitte bringt hierfür Geld in szenetypischer Stückelung mit (kleine Scheine, 2€, 1€ und 50 Cent Münzen). Die Wertmarken können am Ende des Festivals nicht zurückgetauscht werden. Ihr könnt euch aber gerne noch mit Getränken für den Rückweg eindecken!<br>
+Bitte bringt hierfür Geld in szenetypischer Stückelung mit (kleine Scheine, 2€, 1€ und 50 Cent Münzen). Keine Kartenzahlung möglich! Die Wertmarken können am Ende des Festivals nicht zurückgetauscht werden. Ihr könnt euch aber gerne noch mit Getränken für den Rückweg eindecken!<br>
 
 ***Musik***<br>
-Auch in diesem Jahr haben wir eine handverlesene Auswahl an Artists für euch zusammengestellt. Den genauen Timetable findet ihr im Channel!<br>
+Auch in diesem Jahr haben wir eine handverlesene Auswahl an Artists für euch zusammengestellt. Den genauen Timetable findet ihr hier im Channel!<br>
 
 ***Sanitäre Anlagen***<br>
 Auf dem Gelände sind Dixietoiletten, die professionell gereinigt werden. Die Benutzung ist easy wenn ihr ein paar Kleinigkeiten beachtet. Benutztes Toilettenpapier, Hygieneartikel, Müll und Ähnliches werft ihr in den Mülleimer. Zack Alles getrennt und nichts verstopft!
