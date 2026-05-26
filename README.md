@@ -18,7 +18,7 @@ Genau wie bei anderen Festivals wird es bei uns eine große Zeltwiese geben, auf
 SaXXella 2026 wird HOT! Denkt beim packen unbedingt an ausreichend Sonnenschutz, Kopfbedeckung und Trinkflasche zum auffüllen! Auf dem Gelände stehen Trinkwasserkanister um euch jederzeit mit Flüssigkeit zu versorgen. Seid lieb zu einander und füllt bitte leere Kanister auf wenn ihr sie entdeckt. Auffüllen könnt ihr bei den Duschen und in der Küche.
 
 ***Beginn***<br>
-Der Einlass ist am Freitag (29.05.2026) ab 14 Uhr für euch geöffnet! Ab 15 Uhr gehts direkt los mit den ersten Schichten, so dass alle ab 18 Uhr ein warmes Abendessen bekommen. So können alle gut gesättigt zum ersten Act antreten.
+Der Einlass ist am Freitag (29.05.2026) ab 14 Uhr für euch geöffnet! Ab 15 Uhr gehts direkt los mit den ersten Schichten, so dass alle ab 18 Uhr ein Abendessen bekommen. So können alle gut gesättigt zum ersten Act antreten.
 Samstag wird es von 14-16 Uhr erneut einen Einlass geben.
 
 ***Ende***<br>
@@ -63,7 +63,7 @@ NUR fürs kleine Geschäft gibt es hinter dem Schloss eine Rinne für Stehende u
 
 ***Duschen***<br>
 Unter freiem Himmel duschen - Wünsche werden wahr! Mit einem magischen Ausblick auf Wiesen und Wälder gibt es für euch 4 erfrischende Duschen. Dort findet ihr auch Waschbecken für die Katzenwäsche.<br>
-Am Samstag und Sonntag von 13.00 - 16.00 Uhr steht der Wellnessbereich ausschließlich FLINTA* Personen zur Verfügung. Wir bitten euch in dieser Zeit den Bereich zu umgehen und andere Toiletten auf dem Gelände zu nutzen. In den verbleibenden Stunden regelt ihr die Duschsituation unter euch. Zusätzlich gibt es eine Flinta-Aufgusszeit Samstag um 21 Uhr.<br>
+Am Samstag und Sonntag von 13.00 - 16.00 Uhr steht der Wellnessbereich ausschließlich FLINTA* Personen zur Verfügung. Wir bitten euch in dieser Zeit den Bereich zu umgehen. In den verbleibenden Stunden regelt ihr die Duschsituation unter euch. Zusätzlich gibt es eine Flinta-Aufgusszeit Samstag um 21 Uhr.<br>
 
 ***Schichten vor Ort***<br>
 Alle Aufgaben sind an euch verteilt, das freut uns natürlich sehr! Alle, die keine Schicht mehr abbekommen haben, bitten wir ein Auge auf die anderen zu haben und ggf. bei Schichten zu unterstützen.<br>
