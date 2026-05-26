@@ -12,9 +12,7 @@ Kooperative Schloss Gersdorf, Gersdorf 23, 09661 Striegistal.
 (<a href="https://maps.app.goo.gl/bm3yDUJC12z2hvwt5">Google Maps</a>)
 
 ***Location & Lageplan***<br>
-Genau wie bei anderen Festivals wird es bei uns eine große Zeltwiese geben, auf der ihr euer Zelt aufstellen könnt. Bitte achtet darauf, auf dem Zeltplatz keinen Lärm zu machen, da dieser direkt auf das angrenzende Wohngebiet schallt und wir alle keinen Bock auf erzürnte Dorfbewohner:innen mit Mistgabeln haben. Wenn ihr ein Auto oder einen Camper besitzt, in dem ihr schlafen möchtet, könnt ihr euch auch damit auf die Campingwiese stellen. 
-    hier
-  </a>. Dort seht ihr auch, wo sich Toiletten und Duschen befinden.<br>
+Genau wie bei anderen Festivals wird es bei uns eine große Zeltwiese geben, auf der ihr euer Zelt aufstellen könnt. Bitte achtet darauf, auf dem Zeltplatz keinen Lärm zu machen, da dieser direkt auf das angrenzende Wohngebiet schallt und wir alle keinen Bock auf erzürnte Dorfbewohner:innen mit Mistgabeln haben. Wenn ihr ein Auto oder einen Camper besitzt, in dem ihr schlafen möchtet, könnt ihr euch auch damit auf die Campingwiese stellen. Toiletten und Duschen sind ausgeschildert.<br>
 
   ***Wetter***<br>
 SaXXella 2026 wird HOT! Denkt beim packen unbedingt an ausreichend Sonnenschutz, Kopfbedeckung und Trinkflasche zum auffüllen! Auf dem Gelände stehen Trinkwasserkanister um euch jederzeit mit Flüssigkeit zu versorgen. Seid lieb zu einander und füllt bitte leere Kanister auf wenn ihr sie entdeckt. Auffüllen könnt ihr bei den Duschen und in der Küche.
