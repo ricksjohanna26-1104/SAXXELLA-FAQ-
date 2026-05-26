@@ -2,7 +2,7 @@
 Fragen / Antworten rund ums Festival!
 <p>
   Alle Infos findet ihr auch in unserem
-  <a href="t.me/+f0hj9Dt0JOw0Nmly">
+  <a href="https://t.me/+DKuBwbbWsCMzNDY6">
     Telegram Channel
   </a>
 </p>
