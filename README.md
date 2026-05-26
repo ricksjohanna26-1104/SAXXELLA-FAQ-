@@ -79,7 +79,7 @@ Denkt daran, vor Ort zum richtigen Zeitpunkt am richtigen Ort aufzuschlagen und 
 Trübsinn, Langeweile und Tristesse sind die typischen Erscheinungsformen eines langen Samstags. Der Kater kickt und die Laune geht den Bach runter. Lucky you, dass wir auf dem saXXella ein noch besseres Gegenmittel als Elotrans haben. Ledermantel an, Sonnenbrille auf - wir bringen dich mit Sicherheit wieder in Fahrt. Eine Übersicht der Workshops findet ihr <a href="https://drive.google.com/file/d/1p5sAX-IKDWPXcoHkYtawIWfjqPXrb8Bk/view?usp=drivesdk"> hier .<br>
 
 ***Awareness***<br>
-Wir wollen einen Raum schaffen, in dem sich alle wohlfühlen und frei entfalten können. Alle die Teil der Veranstaltung sind, gestalten diesen Raum aktiv mit. Für das Festival finden wir einige Verhaltensregeln wichtig. Wir bitten euch diese hier vorab im  <a href="https://drive.google.com/file/d/19tui43A-Ai8iXcprIEWS4dFevmQzJBiz/view?usp=drivesdk"> Awarenesskonzept </a> nachzulesen. <br>
+Wir wollen einen Raum schaffen, in dem sich alle wohlfühlen und frei entfalten können. Alle die Teil der Veranstaltung sind, gestalten diesen Raum aktiv mit. Für das Festival finden wir einige Verhaltensregeln wichtig. Wir bitten euch diese hier vorab im  <a href="https://drive.google.com/file/d/1Kc2lGFe2F_nDgtC9Y2V0SITU9xFmFuam/view?usp=drivesdk"> Awarenesskonzept </a> nachzulesen. <br>
 <br>
 ***Merch: Handtücher, T-Shirts***<br>
 Die bestellten T-Shirts und Handtücher sowie eure Goodiebags könnt ihr euch beim Einlass abholen.<br>
