@@ -1,10 +1,10 @@
 # SAXXELLA-FAQ-
 Fragen / Antworten rund ums Festival!
 <p>
-  Alle Infos findet ihr auch in unserem
+  Alle Infos findet ihr auch in unserem Telegram
   <a href="https://t.me/+DKuBwbbWsCMzNDY6">
-    Telegram Channel
-  </a>
+    Channel
+  </a>.
 </p>
 
 ***Adresse*** <br>
