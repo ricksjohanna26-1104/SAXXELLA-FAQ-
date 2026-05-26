@@ -44,7 +44,7 @@ Samstag 11-14 Uhr: Mettschnittchen (glutenfrei auf Anfrage), Kaiserschmarrn (glu
 Samstag 18-21 Uhr: Chilli in Carne Salat (Soja), Bulgursalat mediteran (gluten) <br>
 Sonntag 11-14 Uhr: Schnitten mit Kichererbsen (glutenfrei auf Anfrage), süße Schnitten (glutenfrei auf Anfrage)<br>
 <br>
-Zur Feier unserem Jubiläums gibt es am samstag Kaffee und Kuchen, wobei sich alle die Lust haben gerne beteiligen dürft! Tragt euch gerne in die Liste ein:  <a href="https://docs.google.com/document/d/10QrXxLfZ95X_hgH7AOOAxbmR6k93UxGjgNXW8WbWBoI/edit?tab=t.0"> Kuchen saXXella </a> <brb>
+Zur Feier unserem Jubiläums gibt es am samstag Kaffee und Kuchen, wobei sich alle die Lust haben gerne beteiligen dürft! Tragt euch gerne in die Liste ein:  <a href="https://docs.google.com/document/d/10QrXxLfZ95X_hgH7AOOAxbmR6k93UxGjgNXW8WbWBoI/edit?tab=t.0"> Kuchen saXXella </a> <br>
 Zusätzlich stehen für euch den ganzen Tag über Snacks an der Ausgabe bereit. Für die Menschen, die an einer Gluten Unverträglichkeit leiden: wir sind vorbereitet und können euch zu jeder Mahlzeit eine Alternative anbieten. Sagt an der Ausgabe einfach Bescheid.<br>
 <br>
 ***Getränke*** <br>
