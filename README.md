@@ -56,7 +56,7 @@ Freitag: 18:00-19:00 Uhr; 22:00-23:00 Uhr  Samstag: 14:00- 16:00 Uhr; 22:00 - 
 Bitte bringt hierfür Geld in szenetypischer Stückelung mit (kleine Scheine, 2€, 1€ und 50 Cent Münzen). Keine Kartenzahlung möglich! Die Wertmarken können am Ende des Festivals nicht zurückgetauscht werden. Ihr könnt euch aber gerne noch mit Getränken für den Rückweg eindecken nachdem ihr in unserer <a href="https://drive.google.com/file/d/1PL6SizhGzMgb4G4zbN7arfiIjq4j3N1r/view?usp=drivesdk">Getränkeliste </a> fündig geworden seid !<br>
 
 ***Musik***<br>
-Auch in diesem Jahr haben wir eine handverlesene Auswahl an Artists für euch zusammengestellt. Den genauen Timetable findet ihr <a href="https://drive.google.com/file/d/1p5sAX-IKDWPXcoHkYtawIWfjqPXrb8Bk/view?usp=drivesdk"> hier <br> 
+Auch in diesem Jahr haben wir eine handverlesene Auswahl an Artists für euch zusammengestellt. Den genauen Timetable findet ihr <a href="https://drive.google.com/file/d/1kafSmhgnSoyKmh1OmS3ittStBRSYXYb8/view?usp=drivesdk"> hier <br> 
 
 ***Sanitäre Anlagen***<br>
 Auf dem Gelände sind Dixietoiletten, die professionell gereinigt werden. Die Benutzung ist easy wenn ihr ein paar Kleinigkeiten beachtet. Benutztes Toilettenpapier, Hygieneartikel, Müll und Ähnliches werft ihr in den Mülleimer. Zack Alles getrennt und nichts verstopft!
@@ -77,7 +77,7 @@ Für Aufbau, Abbau und Umbau ist Treffpunkt ebenfalls im Küchen- und Barbereich
 Denkt daran, vor Ort zum richtigen Zeitpunkt am richtigen Ort aufzuschlagen und mit anzupacken. Ohne eure Hilfe geht es nicht!<br>
 <br>
 ***Workshops***<br>
-Trübsinn, Langeweile und Tristesse sind die typischen Erscheinungsformen eines langen Samstags. Der Kater kickt und die Laune geht den Bach runter. Lucky you, dass wir auf dem saXXella ein noch besseres Gegenmittel als Elotrans haben. Ledermantel an, Sonnenbrille auf - wir bringen dich mit Sicherheit wieder in Fahrt. Eine Übersicht der Workshops findet ihr <a href="https://drive.google.com/file/d/1p5sAX-IKDWPXcoHkYtawIWfjqPXrb8Bk/view?usp=drivesdk"> hier .<br>
+Trübsinn, Langeweile und Tristesse sind die typischen Erscheinungsformen eines langen Samstags. Der Kater kickt und die Laune geht den Bach runter. Lucky you, dass wir auf dem saXXella ein noch besseres Gegenmittel als Elotrans haben. Ledermantel an, Sonnenbrille auf - wir bringen dich mit Sicherheit wieder in Fahrt. Eine Übersicht der Workshops findet ihr <a href="https://drive.google.com/file/d/14kXoRRgVnFG8uVTSea5ERnPAuzZZO-uy/view?usp=drivesdk"> hier .<br>
 
 ***Awareness***<br>
 Wir wollen einen Raum schaffen, in dem sich alle wohlfühlen und frei entfalten können. Alle die Teil der Veranstaltung sind, gestalten diesen Raum aktiv mit. Für das Festival finden wir einige Verhaltensregeln wichtig. Wir bitten euch diese hier vorab im  <a href="https://drive.google.com/file/d/1Kc2lGFe2F_nDgtC9Y2V0SITU9xFmFuam/view?usp=drivesdk"> Awarenesskonzept </a> nachzulesen. <br>
